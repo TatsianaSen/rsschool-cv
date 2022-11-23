@@ -6,7 +6,7 @@
 
 - tel. (48)571465249
 - mail. tatsianasen175@gmail.com
-- linkedIn. https://www.linkedin.com/in/tatsiana-sen-35b92b256/
+- LinkedIn. https://www.linkedin.com/in/tatsiana-sen-35b92b256/
 - 31-436 Krakow, Poland
 
 ### Summary
